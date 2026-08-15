@@ -10,7 +10,7 @@
 
 ㅤ੭୧ㅤ𓈒ㅤㅤㅤㅤㅤ ㅤFandoms: Hsr, Genshin, Uma Musume, Skullgirls, Soul Eater, Witch Hat Atelier, Tgcf - I'm planning to do more ponies from other fandoms.
 
-ㅤㅤ ㅤ ㅤㅤ  ㅤ ㅤㅤㅤ ㅤ ㅤㅤ  ㅤㅤ ㅤ ㅤCheck [carrd](https://phoeb3e.carrd.co/) for more fandoms I'm in or about me. ^_^
+ㅤㅤ ㅤ ㅤㅤ  ㅤ ㅤㅤㅤ ㅤ ㅤㅤ  ㅤㅤ ㅤ ㅤCheck [strawpage]([https://phoeb3e.carrd.co/](https://ph0b1ash3ll.straw.page)) for more fandoms I'm in or about me.
 
 
 
