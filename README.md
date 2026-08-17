@@ -4,7 +4,7 @@
 ㅤ੭୧ㅤ𓈒ㅤㅤㅤㅤI strictly only ship Bootgenti / Argenthill, any other ships of them make me uncomfortable so DNI (especially Rbhl) ,
 ㅤㅤㅤㅤ  ㅤㅤㅤI accept interactions if it's platonic! . Friendly cuddles applies to everyone. Galaxy rangers PLEASE interact!! /platonic . **W2i!**  **DNC**. I also block freely.ㅤ**Esp/eng**
 
-ㅤ୧੭ㅤ𓈒ㅤㅤㅤㅤC + H and interacting are always welcome as long as the intentions aren't weird. Sometimes might be afk. Sometimesㅤㅤ ㅤI'm awkward when socializing because I don't know what to say and my social battery is low, but actions are enough for me.
+ㅤ୧੭ㅤ𓈒ㅤㅤㅤㅤC + H and interacting are always welcome as long as the intentions aren't weird. Sometimes might be afk. Sometimesㅤㅤ ㅤI'm awkward when socializing because I don't know what to say, but actions are enough for me - Still so, feel free to interact please!
 
 ㅤㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤ   ㅤㅤ  ㅤㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ..ㅤ⎯⎯ㅤㅤִㅤㅤ୨ ♡ ୧ㅤㅤִ  ⎯⎯ ㅤ..
 
