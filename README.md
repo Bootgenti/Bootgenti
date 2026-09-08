@@ -13,7 +13,7 @@
 ㅤ੭୧ㅤ𓈒ㅤㅤㅤㅤㅤ ㅤFandoms: Hsr, Genshin, Uma Musume, Skullgirls, Soul Eater, Witch Hat Atelier, Tgcf - I'm planning to do more ponies from other fandoms.
 
 <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=nsha6v5nbha5e6f68we5lm88f&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=nsha6v5nbha5e6f68we5lm88f&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=nsha6v5nbha5e6f68we5lm88f&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=eec4dc&bar_color_cover=false">
   </a>
 </p>
