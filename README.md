@@ -1,6 +1,8 @@
 # ㅤㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤㅤㅤ૮ ࣪ㅤ𝐑𝗈𝗌𝖾𝗌 𝖭' 𝐑𝖾𝗏𝗈𝗅𝗏𝖾𝗋𝗌ㅤ★
 <img width="1877" height="656" alt="image" src="https://github.com/user-attachments/assets/e35f92ae-a8c0-4003-8781-2b57d04930d4" />  枝波
 
+ㅤㅤ ㅤ ㅤㅤ  ㅤ ㅤㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ  ㅤ  ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤ ㅤ ㅤ![Happy Twogether](https://komarev.com/ghpvc/?username=Bootgenti)
+
 ㅤ੭୧ㅤ𓈒ㅤㅤㅤㅤI strictly only ship Bootgenti / Argenthill, any other ships of them make me uncomfortable so DNI (especially Rbhl) ,
 ㅤㅤㅤㅤ  ㅤㅤㅤI accept interactions if it's platonic! . Friendly cuddles applies to everyone. Galaxy rangers PLEASE interact!! /platonic . **W2i!**  **DNC**. I also block freely.ㅤ**Esp/eng**
 
@@ -10,5 +12,8 @@
 
 ㅤ੭୧ㅤ𓈒ㅤㅤㅤㅤㅤ ㅤFandoms: Hsr, Genshin, Uma Musume, Skullgirls, Soul Eater, Witch Hat Atelier, Tgcf - I'm planning to do more ponies from other fandoms.
 
-ㅤㅤ ㅤ ㅤㅤ  ㅤ ㅤㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ  ㅤ  ㅤ ㅤㅤ  ㅤ ㅤㅤ ㅤ ㅤ![Happy Twogether](https://komarev.com/ghpvc/?username=Bootgenti)
-
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=nsha6v5nbha5e6f68we5lm88f&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=nsha6v5nbha5e6f68we5lm88f&cover_image=true&theme=default&show_offline=false&background_color=2f2e33&interchange=false&profanity=false&hide_remaster=false&bar_color=e3c0cc&bar_color_cover=false">
+  </a>
+</p>
