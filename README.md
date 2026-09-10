@@ -1,7 +1,7 @@
 # ㅤㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤㅤㅤ૮ ࣪ㅤ𝐑𝗈𝗌𝖾𝗌 𝖭' 𝐑𝖾𝗏𝗈𝗅𝗏𝖾𝗋𝗌ㅤ★
 <img width="1877" height="656" alt="image" src="https://github.com/user-attachments/assets/e35f92ae-a8c0-4003-8781-2b57d04930d4" />  枝波
 
-ㅤㅤ ㅤ ㅤㅤ  ㅤ ㅤㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ  ㅤ  ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤ ㅤ ㅤ![](https://komarev.com/ghpvc/?username=Bootgenti&label=Happy+Twogether)
+ㅤㅤ ㅤ ㅤㅤ  ㅤ ㅤㅤㅤ ㅤ ㅤㅤ ㅤ ㅤㅤ  ㅤ  ㅤ ㅤㅤㅤ ㅤㅤ  ㅤ ㅤㅤ ![](https://komarev.com/ghpvc/?username=Bootgenti&label=Happy+Twogether)
 
 ㅤ੭୧ㅤ𓈒ㅤㅤㅤㅤI strictly only ship Bootgenti / Argenthill, any other ships of them make me uncomfortable so DNI (especially Rbhl) ,
 ㅤㅤㅤㅤ  ㅤㅤㅤI accept interactions if it's platonic! . Friendly cuddles applies to everyone. Galaxy rangers PLEASE interact!! /platonic . **W2i!**  **DNC**. I also block freely.ㅤ**Esp/eng**
