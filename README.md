@@ -10,7 +10,7 @@
 
 ㅤㅤ ㅤ ㅤㅤ  ㅤ ㅤ ㅤ ㅤ   ㅤㅤ  ㅤㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ..ㅤ⎯⎯ㅤㅤִㅤㅤ୨ ♡ ୧ㅤㅤִ  ⎯⎯ ㅤ..
 
-ㅤ੭୧ㅤ𓈒ㅤㅤㅤㅤㅤ ㅤFandoms: Hsr, Genshin, Uma Musume, Skullgirls, Soul Eater, Witch Hat Atelier, Tgcf - I'm planning to do more ponies from other fandoms.
+ㅤ੭୧ㅤ𓈒ㅤㅤㅤㅤㅤ ㅤFandoms: Hsr, Genshin, Zzz, Uma Musume, Skullgirls, Soul Eater, Witch Hat Atelier, Tgcf, One Room TA, Nerd Project,  - I'm planning to do more ponies from other fandoms.
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
